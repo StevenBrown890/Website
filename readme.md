@@ -7,5 +7,5 @@ Last touches ... this platform will be so usefull for training in SDE, I will an
 
 
 Contact me on Facebook if you would like to try a demo:
-https://www.facebook.com/Stevejb890/
+https://www.facebook.com/profile.php?id=100083363989969
 
